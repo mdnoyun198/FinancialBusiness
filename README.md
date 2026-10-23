@@ -467,6 +467,9 @@
 
 ---
 
+[PDF Link](https://drive.google.com/file/d/1d6BkDrXIyIv8d2ueE0lZAMTAPUCNevdn/view?usp=drive_link)
+
+
 <div align="center">
 
 **গবেষণা প্রতিবেদন · সংস্করণ ২.০ · ২০২৬**
